@@ -11,13 +11,13 @@ Again, if you are able to find student housing with FMEL when you are enrolled a
 
 The difference in quality is even more pronounced when the cost of living is taken into account. Champaign is in a low cost of living area two hours south of Chicago, while Lausanne is a densely populated city in Lausanne in the very high COL Switzerland. 
 
-In American universities, you are obliged to live in dorms your first year. At University of Illinois I had the cheapest dorm on campus, with no air conditioning, shared with a roommate. Your experience inside the dorm will vary heavily 
+In American universities, you are obliged to live in dorms your first year. At University of Illinois I had the cheapest dorm on campus, with no air conditioning, shared with a roommate. Your experience inside the dorm will vary heavily depending on which friends you make and who your roommate is. Swiss universities are generally very quiet places for students to study, with few events. 
 
-Rules of using the room are different. In Switzerland, all issues are reported to what would be your resident director, who will refer the matter to the governing body of residences (FMEL in this case) if needed. In United States, you would have resident advisors that would require residents to attend weekly meetings, and regularly check in with students. 
+Rules of using the room are different. In Switzerland, all issues are reported to what would be your resident director, who will refer the matter to the governing body of residences (FMEL in this case) if needed. In United States, you would have resident advisors that would require residents to attend weekly meetings, and regularly check in with students. These two highlight drastically different philosophies to dorm life. In Swiss universities dorms are there to help students manage their spaces and build life skills, such as cooking in communal kitchens, while in American universities they are often another home away from home with supervision responsibilities delegated from parents to resident advisors.
 
 ## 2. Study environment
 
-Swiss universities are efficient, and very no-nonsense. You don't have the university spending millions of dollars on football programs. Other than academics, they support some basic student services - counselling, health center, academic support. For example, to go to the gym (shared with University of Lausanne, or UNIL), students need to pay $50 a semester to access. 
+Swiss universities are efficient, and very no-nonsense. You don't have the university spending millions of dollars on football programs. Other than academics, they support some basic student services - counselling, health center, academic support. For example, to go to the gym (shared with University of Lausanne, or UNIL), students need to pay $50 a semester to access. Swiss universities often lack many of the grandiose displays of architecture with newer buildings, or are already using old, historical buildings such as ETH Zurich does. This, however, does not mean Swiss university buildings are "less" well designed in general, but they are simple and very practical. 
 
 This is not to say life at EPFL will be boring. EPFL is designed very well that there are businesses and establishments all within walking distance, integrated with the campus itself. This is not something that you will just find on sprawling American university campuses. Convenience on campus is superior to American universities, although another consideration is that EPFL would be considered small by the standards of large American state university institutions with around 11,000 students. 
 
@@ -25,7 +25,9 @@ American universities offer vibrant student life with thousands of different opp
 
 ## 3. Safety
 
-At UIUC, every few nights, there will be an Illini-Alert which documents a case of a crime, such as a student getting robbed or mugged, sometimes in the middle of the streets. At EPFL I have yet to hear about students getting into very unsafe situations at night, although sometimes residences can be difficult to get to. 
+At UIUC, every few nights, there will be an Illini-Alert which documents a case of a crime, such as a student getting robbed or mugged, sometimes in the middle of the streets. 
+
+At EPFL I have yet to hear about students getting into very unsafe situations at night, although sometimes residences can be difficult to get to. 
 
 ## 4. Public Transport
 
